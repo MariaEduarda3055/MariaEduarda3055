@@ -12,4 +12,5 @@ cardosomariaeduarda921@gmail.com
 
 @mariia_eduardaa
 
-![](https://tenor.com/bzXs2.gif)
+![](https://github.com/MariaEduarda3055/MariaEduarda3055/assets/173521934/6d84903c-ac4c-40df-889e-fc5109f8e937)
+
