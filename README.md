@@ -1,16 +1,15 @@
-## Hi there 👋
+## boas vindas ao meu perfil 💙
 
-<!--
-**MariaEduarda3055/MariaEduarda3055** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Maria Eduarda 
 
-Here are some ideas to get you started:
+- Estou estudando no [Alura](https://www.alura.com.br) 
+- Estou me desenvolvendo na linguagem JavaScript
+- Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*** Você pode entrar em contato comigo 📫
+
+cardosomariaeduarda921@gmail.com 
+
+@mariia_eduardaa
+
+![](https://github.com/Maria4222118/Maria4222118/assets/173364300/5e85a45a-2d70-4b3e-a813-c5c4f0fcc8d0)
