@@ -12,5 +12,4 @@ cardosomariaeduarda921@gmail.com
 
 @mariia_eduardaa
 
-![](https://tenor.com/pt-BR/view/salem-gif-20924062)
-
+![](https://github.com/MariaEduarda3055/MariaEduarda3055/assets/173521934/0f81d4b5-6570-4d70-9fdf-efbbf2f93214)
