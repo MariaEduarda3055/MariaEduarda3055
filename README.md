@@ -1,4 +1,4 @@
-## boas vindas ao meu perfil 💙
+### boas vindas ao meu perfil 💙
 
 Meu nome é Maria Eduarda 
 
@@ -12,6 +12,4 @@ cardosomariaeduarda921@gmail.com
 
 @mariia_eduardaa
 
-!.[].(https://github.com/MariaEduarda3055/MariaEduarda3055/assets/173521934/b85978ba-e001-4c83-b689-5e28ab5b4c0c)
-
-
+![](https://github.com/MariaEduarda3055/MariaEduarda3055/assets/173521934/e6120a7c-fa41-4e03-852c-ad1f0c54f0eb)
