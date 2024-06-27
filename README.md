@@ -12,4 +12,4 @@ cardosomariaeduarda921@gmail.com
 
 @mariia_eduardaa
 
-![](https://github.com/MariaEduarda3055/MariaEduarda3055/assets/173521934/0f81d4b5-6570-4d70-9fdf-efbbf2f93214)
+![](https://media1.tenor.com/m/Ts6VHhSc6jkAAAAd/gato-cat.gif)
